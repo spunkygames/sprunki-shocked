@@ -1,6 +1,6 @@
 # Sprunki Shocked
 
-Sprunki Shocked is a unique and electrifying online game experience. Explore the exciting world of Sprunki and prepare for a shockingly fun adventure. Play Sprunki Shocked Now: [Sprunki Shocked](https://spunky.games/sprunki-shocked)
+Sprunki Shocked is a unique and electrifying online game experience. Explore the exciting world of Sprunki and prepare for a shockingly fun adventure. Play [Sprunki Shocked](https://spunky.games/sprunki-shocked)
 
 
 ---
@@ -65,4 +65,4 @@ Getting started with Sprunki Shocked is simple:
 ---
 
 
-Get ready for a shock! Play Sprunki Shocked now. For more Spunky discussions, check out:[spunkygame quora](https://spunkygame.quora.com/), [sprunki quora](https://sprunki.quora.com/), and[esprunki quora](https://esprunki.quora.com/).
+Get ready for a shock! Play Sprunki Shocked now. You might also enjoy other games like [Wordle Game](https://spunky.games/wordle-game), [Subway Surfers](https://spunky.games/subway-surfers), and [Sprunkis Banana](https://spunky.games/sprunkis-banana).
